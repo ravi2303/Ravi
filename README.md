@@ -1,0 +1,2 @@
+# Ravi
+Ravi Melwani was an innovative and dynamic retailer who revolutionized traditional retailing in India through his mega-stores Kids Kemp and Kemp Fort. He then moved on to become a vibrant philosopher, poet, singer, inspirational speaker and author. Ravi Melwani took his first step towards turning a new leaf when he realized that there is more to life than just making millions. Ravi Melwani then decided to dedicate his life to H.I.S work – Humanitarian, Inspirational and Spiritual initiatives. Ravi Melwani was also known as RVM.
